@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Dutch (Hallo) 
 - 📫 How to reach me: Not open to the public.   
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Penguins are my favorite animal. 
 
 <!---
 Sproutlet/Sproutlet is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
