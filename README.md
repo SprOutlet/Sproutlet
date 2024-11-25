@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sproutlet
+- 👋 Hi, I’m @SprOutlet
 - 👀 I’m interested in Brawl Stars
 - 🌱 I’m currently learning Dutch (Hallo) 
 - 📫 How to reach me: Not open to the public.   
