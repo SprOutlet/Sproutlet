@@ -1,6 +1,6 @@
 - 👋 Hi, I exist.. I think. 
 - 🎮 Video games are a W
-- 🌱 <---- Sprout from BS? 
+- 🌱 <--- Sprout from BS? 
 - 📫 How to reach me: You extend your arm.  
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: This fact is fun. 
